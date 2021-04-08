@@ -1,0 +1,1 @@
+boil water,when the water comes to boil.add pasta and1 tbsp oil, 1/2 tbsp salt,black pepper according to our taste,drain off in a colander and rinse in cold water to remove extra starch,chop capsicum,onions,tomato ,saute chopped vegetables in a pan,after that put pasta in it,add some cream,add mixture of red sauce and mayonaise in it ,stir it,red sauce pasta is ready to eat.
